@@ -4,6 +4,8 @@
 
 ## Ingrédients
 
+poivre, 50g de beurre, sel, 7 oeufs. 
+
 ## Étapes
 Étape 1
 Battez les oeufs à la fourchette, salez et poivrez.
